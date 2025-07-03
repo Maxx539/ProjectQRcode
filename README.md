@@ -48,4 +48,6 @@ i will probably change some stuff over time
 i will put something for [a] [t] [something] when i clearly know what to put
 I will come back as often as i can 
 
-#next
+#2(03/07) 
+ok [a] will probably be white.
+still thinking about [something]
